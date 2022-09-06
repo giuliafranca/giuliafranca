@@ -1,6 +1,6 @@
 ### Olá, me chamo Giulia Franca! 👋
 
-Sou estudante de Engenharia da Computação e atualmente estou cursando o terceiro semestre.
+Sou estudante de Engenharia da Computação e atualmente estou cursando o quarto semestre.
 
 Seja bem vindo ao meu perfil!
 
