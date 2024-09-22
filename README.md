@@ -1,6 +1,6 @@
 ### Hello, I'm Giulia Franca! 👋
 
-Studying Computer Engineering at Senai CIMATEC 5/10.
+Studying Computer Engineering at Senai CIMATEC 8/10.
 
 Welcome to my profile!
 
